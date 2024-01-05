@@ -1,0 +1,1 @@
+# osszes_beadando
